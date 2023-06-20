@@ -1,0 +1,1 @@
+# Lancamento_estrategico_mt4
